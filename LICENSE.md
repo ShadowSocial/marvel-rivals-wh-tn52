@@ -1,4 +1,4 @@
-
+Experience marvel rivals wh like never before with premium Wall Detection for marvel rivals wh - team buff amplifier and enhanced hero vision, the #1 wh. Includes team buff
 
 
 
